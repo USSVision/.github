@@ -7,4 +7,4 @@ USS Vision Multi-View™, Surface Scan™, and Exact Scan™ were born from the 
 
  
 
-USS Vision has been in business for over 20 years and is AIA certified. Headquartered in Metro-Detroit, with remote support offices in Memphis, Chicago, and Saltillo, Mexico.
+USS Vision has been in business for over 20 years and is AIA certified. Headquartered in Metro Detroit, with remote support offices in Memphis, Chicago, and Saltillo, Mexico.
